@@ -1,10 +1,10 @@
-<p><strong><a href="http://phongkhamthaiha.com/chi-phi-chua-benh-sui-mao-ga-102256.html">Chi phí chữa bệnh sùi mào gà</a>&nbsp;</strong>là quan tâm của rất nhiều bệnh nhân với mong muốn được lời giải. Là một trong những chứng bệnh lây lan qua đường tình dục phổ quát, tỉ lệ bệnh nhân mắc sùi mào gà hiện đang có chiều hướng gia tăng Vài năm gần đây. Cùng với địa chỉ trị bệnh sùi mào gà uy tín, biện pháp điều trị bệnh mồng gà tốt nhất thì mức phí điều trị bệnh mồng gà cũng là vấn đề được nhiều thành phần quan tâm.</p>
+<p><strong>Chi phí chữa bệnh sùi mào gà </strong>là quan tâm của rất nhiều bệnh nhân với mong muốn được lời giải. Là một trong những chứng bệnh lây lan qua đường tình dục phổ quát, tỉ lệ bệnh nhân mắc sùi mào gà hiện đang có chiều hướng gia tăng Vài năm gần đây. Cùng với địa chỉ trị bệnh sùi mào gà uy tín, biện pháp điều trị bệnh mồng gà tốt nhất thì mức phí điều trị bệnh mồng gà cũng là vấn đề được nhiều thành phần quan tâm.</p>
 
 <p><img alt="" src="http://phongkhamthaiha.com/media/images/chi-phi-chua-benh-sui-mao-ga-bao-nhieu-tien.jpg" style="height:250px; width:400px" /></p>
 
 <p>chi phí điều trị sùi mào gà giá bao tiền sẽ được các bác sĩ về bệnh xã hội trung tâm y tế đa khoa Thái Hà tư vấn ngay sau đây:</p>
 
-<p><a href="http://phongkhamthaiha.com/benh-sui-mao-ga-o-nu-gioi-va-cach-dieu-tri-102252.html">bệnh sùi mào gà ở phụ nữ</a>&nbsp;nguyên nhân triệu chứng cách chữa</p>
+<p>bệnh sùi mào gà ở phụ nữ nguyên nhân triệu chứng cách chữa</p>
 
 <p><a href="https://github.com/chienbach/hinh-anh-sui-mao-ga">Hình ảnh bệnh sùi mào gà</a></p>
 
